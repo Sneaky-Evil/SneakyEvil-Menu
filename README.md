@@ -1,5 +1,8 @@
+# AMONG US sneakyevil
+Among Us Cheat Is Popluar To A Game Among us
+
 # ABOUT
-This cheat is 100 working use this mod kill all crew in 1 seconed teloport to the crew and kill 
+This cheat is 100 working use this mod kill all crew in 1 seconed teloport to the crew and kill
 
 # DEAFULT HOYTKEY 
 hide Menu-Insert 
