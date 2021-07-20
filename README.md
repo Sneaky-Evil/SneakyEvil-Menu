@@ -27,4 +27,6 @@ Play on Steam And Show on The process list Or download Among us.exe and show on 
 
 Hope ypou are enjoying the sneakyevil menu :)
 
+This menu was made by sneakyevill
+
 
