@@ -4,7 +4,7 @@ This cheat is 100 working use this mod kill all crew in 1 seconed teloport to th
 # DEAFULT HOYTKEY 
 hide Menu-Insert 
 
-# AMONG US (SNEAKYEVIL.dll)
+# AMONG US (sneakyevil.dll)
 Inject with Extreme Injector
 
 (sneakyevil.dll) inject dll 
