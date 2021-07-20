@@ -23,6 +23,6 @@ this menu is made with evil Best thing is when you are imposter in among us and 
 If you guys don't still under stand go to my channel https://www.youtube.com/watch?v=M34MFcswKio
 
 # AMONG US.EXE
-Play on Steam And Show on The process list Or download Among us.exe and show on the process list.
+Play on Steam And Show on The process list.
 
-Hope ypou are enjoying the sneakyevil menu :)
+Hope you enjoy This sneakyevil menu. :)
