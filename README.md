@@ -27,5 +27,7 @@ If you guys don't still under stand go to my channel https://www.youtube.com/wat
 
 # AMONG US.EXE
 Play on Steam And Show on The process list.
+# SUPPORTED WINDOWS 
+the supported windows is windows 10
 
 Hope you enjoy This sneakyevil menu :)
