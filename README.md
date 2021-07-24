@@ -13,9 +13,9 @@ Inject with Extreme Injector
 
 (Among us.exe) Open game steam to show on the process list
 
-⚠ WARRNING This Menu Has CURSE WORDS Of Players And Imposters
+or you can download sneakyevil cheat menu file that i uploaded
 
-or you can download sneakyevil cheat menu file that i uploaded 
+⚠ WARRNING This Menu Has CURSE WORDS Of Players And Imposters 
 
 
 # PROJECT CHEAT
