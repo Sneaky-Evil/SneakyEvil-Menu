@@ -22,7 +22,7 @@ this menu is made with evil Best thing is when you are imposter in among us and 
 ![Among Us Sneakyevil](https://user-images.githubusercontent.com/87672731/126224942-582af979-54df-404d-8050-d3f77d291fc1.PNG)
 
 # TURTORIAL 
-If you guys don't still under stand go to my channel https://www.youtube.com/watch?v=M34MFcswKio
+If you guys don't still under stand go to https://www.youtube.com/watch?v=M34MFcswKio to show what that means 
 
 # AMONG US.EXE
 Play on Steam And Show on The process list.
