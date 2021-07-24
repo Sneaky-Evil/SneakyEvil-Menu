@@ -15,6 +15,9 @@ Inject with Extreme Injector
 
 ⚠ WARRNING This Menu Has CURSE WORDS Of Players And Imposters
 
+or you can download sneakyevil cheat menu file that i uploaded 
+
+
 # PROJECT CHEAT
 this menu is made with evil Best thing is when you are imposter in among us and you have the sneakyevil menu turn on no kill timer or click on the player list of players and slect the player then click telport and kill (KILL ALL CREW IN 1 SECONED)
 
